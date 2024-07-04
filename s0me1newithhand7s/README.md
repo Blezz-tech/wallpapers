@@ -1,0 +1,1 @@
+Обои взяты отсуда: https://github.com/s0me1newithhand7s/dots
